@@ -1,0 +1,1 @@
+# QuranVerses/Verse-169.md <br><br>For more infos, See [Verse 169](https://www.quranbookk.com/quran/search?q=169)
