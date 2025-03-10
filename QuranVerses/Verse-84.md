@@ -1,0 +1,1 @@
+"# QuranVerses/Verse-84.md <br> <br>For more infos, See [Verse 84](https://www.quranbookk.com/quran/search?q=84)"
