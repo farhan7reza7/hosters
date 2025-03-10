@@ -1,0 +1,1 @@
+# QuranVerses/Verse-194.md <br><br>For more infos, See [Verse 194](https://www.quranbookk.com/quran/search?q=194)
