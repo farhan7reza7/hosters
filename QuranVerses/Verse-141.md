@@ -1,0 +1,1 @@
+" # QuranVerses/Verse-141.md <br><br>For more infos, See [Verse 141](https://www.quranbookk.com/quran/search?q=141)"
