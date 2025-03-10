@@ -1,0 +1,1 @@
+# QuranVerses/Verse-179.md <br><br>For more infos, See [Verse 179](https://www.quranbookk.com/quran/search?q=179)
