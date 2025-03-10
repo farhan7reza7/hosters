@@ -1,0 +1,1 @@
+"QuranVerses/Verse-47.md"
