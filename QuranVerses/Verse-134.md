@@ -1,0 +1,1 @@
+" # QuranVerses/Verse-134.md <br><br>For more infos, See [Verse 134](https://www.quranbookk.com/quran/search?q=134)"
