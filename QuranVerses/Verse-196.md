@@ -1,0 +1,1 @@
+# QuranVerses/Verse-196.md <br><br>For more infos, See [Verse 196](https://www.quranbookk.com/quran/search?q=196)
