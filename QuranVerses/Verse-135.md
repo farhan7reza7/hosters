@@ -1,0 +1,1 @@
+" # QuranVerses/Verse-135.md <br><br>For more infos, See [Verse 135](https://www.quranbookk.com/quran/search?q=135)"
