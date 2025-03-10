@@ -1,0 +1,1 @@
+"# QuranVerses/Verse-122.md <br> <br>For more infos, See [Verse 122](https://www.quranbookk.com/quran/search?q=122)"
